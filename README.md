@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Truong Vi Khang  
 
-🎓 **Information Systems Student** | Ho Chi Minh City, Vietnam  
+🎓 **Information Technology Intern** | Ho Chi Minh City, Vietnam  
 
 ---
 
